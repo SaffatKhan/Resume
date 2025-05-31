@@ -1,6 +1,6 @@
 # Resume
 
-![Image](https://github.com/user-attachments/assets/3a2cd8ae-587f-42c4-9028-14631eb11904)
+![Image](https://github.com/user-attachments/assets/6957f5a7-efc5-48b4-ad9d-1448de3615dc)
 
 # Manager of Operations
 
