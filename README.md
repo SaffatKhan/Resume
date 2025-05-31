@@ -1,5 +1,7 @@
 # Resume
 
+![Image](https://github.com/user-attachments/assets/3a2cd8ae-587f-42c4-9028-14631eb11904)
+
 # Manager of Operations
 
 #### Top Skills: Leadership, People Management, Operations Management
